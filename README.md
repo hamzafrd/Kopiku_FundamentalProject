@@ -1,1 +1,0 @@
-# Kopiku_FundamentalProject
